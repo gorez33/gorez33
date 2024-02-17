@@ -8,7 +8,7 @@ I love coding.
 
 * 🌍  I'm based in Germany
 * ✉️  You can contact me at [jansonbs101@gmail.com](mailto:jansonbs101@gmail.com)
-* ⚡  And I also love sweets:doughnut:.
+* ⚡  And I also love sweets.
 
 ### Skills
 
